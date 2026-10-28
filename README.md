@@ -1,0 +1,2 @@
+# Hells-Rejects
+Clan structure
